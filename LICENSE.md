@@ -1,4 +1,4 @@
-#  
+#  be a lucky block Scripts top is the best be a lucky block Script, featuring custom skins and infinite resources. Safe and powerful for all your needs.
 
 
 
